@@ -1,2 +1,2 @@
 # jagruti_pawar
-jagruti paear
+jagruti pawar
